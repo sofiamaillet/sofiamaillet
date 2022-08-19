@@ -1,0 +1,5 @@
+- 👋 Hi there, I’m @sofiamaillet
+- 👀 I’m interested in 2D and 3D Animation and Game Development
+- 🌱 I’m currently learning how to make Video Games and to create content for the Web
+- 💞️ I’m looking to collaborate on making Videogames! Would be so cool!
+- 📫 You reach me on my email: sofiamaillet@gmail.com
